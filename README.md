@@ -1,0 +1,1 @@
+This is only for storaging test code for post-piscine subjects that I am interested to complete. Those does not equal to correct answer to current piscine project and please do not use them as your cheating methods at any cost. 
